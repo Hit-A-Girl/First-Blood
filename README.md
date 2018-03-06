@@ -1,2 +1,2 @@
 # First-Blood
-Then,this is first blood that i got.
+Firstly,this is first blood that i got.Then,i will get a cup of blood.
